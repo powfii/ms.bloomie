@@ -1,1 +1,1 @@
-![86d098f202674be60c74061551739d51](https://github.com/powfii/powfii/assets/159025274/a21da76c-c963-46dd-af3f-b6ee5e3b1688)
+  ![a8f4181fe4e8ed9181f2a7c84dd838ab](https://github.com/powfii/powfii/assets/159025274/82999893-7f9c-49a0-a978-a49935237a70)
